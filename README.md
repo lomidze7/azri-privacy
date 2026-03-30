@@ -46,7 +46,7 @@ We prioritize the security of your information. By keeping your data on your dev
 
 ## 6. Contact Us
 If you have any questions or suggestions about this Privacy Policy, do not hesitate to contact us at:
-**[YOUR_EMAIL_HERE]** (Please update this)
+**giolomimi@gmail.com** 
 
 ---
 
